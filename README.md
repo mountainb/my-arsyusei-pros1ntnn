@@ -1,1 +1,0 @@
-# my-arsyusei-pros1ntnn
